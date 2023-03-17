@@ -1,4 +1,4 @@
-# Baba Blaster DIAKITE CV :joy:
+# Fakoro Baba DIAKITE :joy:
 * ***2010 - 2014*** Licence Professionnelle en Informatique Réseaux et Systèmes
 ***Université Nongo Conakry***
 ## Contacts :joy:
